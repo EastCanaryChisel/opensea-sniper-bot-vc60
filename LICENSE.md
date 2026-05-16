@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with ultimate NFT Scanner for opensea sniper bot | private-RPC-nodes & volume-analysis. Featuring private-RPC-nodes and volume-analysis, it's
 
 
 
